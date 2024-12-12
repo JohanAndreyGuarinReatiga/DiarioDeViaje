@@ -9,3 +9,5 @@ Palm Jumeirah es una de las islas artificiales más grandes del mundo, además d
 ## Foto
 ![](https://www.visitdubai.com/-/media/gathercontent/article/t/top-things-to-do-in-dubai/media/top-things-to-do-in-dubai-palm-jumeirah-4.jpg?rev=ea1bd7b44f7843d1a48af4b352789cb0&cx=0.5&cy=0.5&cw=1180&ch=590)
 
+## Informacion sobre Dubai
+Dubái es una ciudad emirato de los Emiratos Árabes Unidos conocida por su lujoso comercio, la arquitectura ultramoderna y su vida nocturna animada. Burj Khalifa, una torre de 830 m de alto, domina el paisaje lleno de rascacielos. A sus pies se encuentra la Fuente de Dubái, con coreografías de chorros y luces al ritmo de la música. En las islas artificiales justo frente a la costa están Atlantis, la Palma, un centro turístico con agua y parques de animales marinos.
