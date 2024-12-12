@@ -5,3 +5,6 @@ Roma es una ciudad, capital de la región del Lacio y de Italia. Con una poblaci
 
 ## Recomendacion
 En Roma siempre habrá mucha gente, por lo que personalmente te recomendamos que viajes en fechas menos cotizadas (entre otoño y primavera), cuando hay menos turistas y no es temporada alta. Los vuelos y alojamientos en estas épocas suelen ser un poco más baratos y las temperaturas menos extremas.
+
+## Foto
+![](https://www.enroma.com/wp-content/uploads/2018/04/7-consejos-viajar-roma-cola-plaza-san-pedro.jpg.webp)
