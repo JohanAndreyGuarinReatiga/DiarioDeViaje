@@ -8,3 +8,6 @@ La zona de Sultanahmet era un hipódromo en la época dorada de Constantinopla a
 
 # Foto
 ![](https://www.capilclinic.es/blog/wp-content/uploads/2016/11/mezquita-azul.jpg)
+
+# Informacion
+Como antigua capital del Imperio otomano y Bizancio, y ciudad cosmopolita que, para el siglo XVI, era probablemente la más civilizada y multicultural en el mundo, Estambul alberga monumentos extraordinarios: iglesias, hipódromo, las mezquitas de Sultanahmet y Süleymaniye, el Palacio de Topkapı entre otros.
