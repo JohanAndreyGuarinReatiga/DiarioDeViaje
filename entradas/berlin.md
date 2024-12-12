@@ -6,3 +6,6 @@ La capital alemana es también el hogar de todos los grandes edificios gubername
 ## Recomendacion
 Antes de viajar a Berlín es aconsejable hacer una lista con todas las experiencias que quieres disfrutar y lugares que quieres conocer, para aprovechar al máximo el tiempo.
 Entre algunos de los monumentos más importantes y símbolos de la ciudad destaca la Puerta de Brandeburgo, antigua puerta de entrada que luce impresionante de día y de noche.
+
+## Foto
+![](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f7/Museumsinsel_Berlin_Juli_2021_1_%28cropped%29_b.jpg/800px-Museumsinsel_Berlin_Juli_2021_1_%28cropped%29_b.jpg)
