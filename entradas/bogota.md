@@ -8,3 +8,6 @@ El principal atractivo y orgullo turístico de Bogotá es el barrio de la Candel
 
 ## Foto
 ![](https://arriendo.com/co/blog/wp-content/uploads/2024/01/vivir-en-el-centro-de-bogota-1400x934.jpg)
+
+## Informacion sobre Bogota
+Bogotá es la extensa capital en altura de Colombia. La Candelaria, su centro con adoquines, cuenta con sitios coloniales como el Teatro Colón neoclásico y la Iglesia de San Francisco del siglo XVII. También alberga museos populares, incluido el Museo Botero, que exhibe arte de Fernando Botero, y el Museo del Oro, con piezas de oro precolombinas.
