@@ -5,3 +5,6 @@ Pattaya es un popular destino turístico de playa en el Golfo de Tailandia, a ta
 
 ## Recomendacion
 Barrio rojo de Tailandia. Si vienes a pattaya no puedes dejar de ir a recorrer esta calle y ver las famosas Ping pong girls. Es una cruda realidad, que finalmente se transforma en un show. Pocas mujeres de turista, es una ciudad hecha para el turismo sexual.
+
+## Foto
+![](https://dynamic-media-cdn.tripadvisor.com/media/photo-o/15/33/fb/5c/pattaya.jpg?w=1400&h=1400&s=1)
