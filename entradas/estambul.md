@@ -5,3 +5,6 @@ Estambul es una ciudad importante en Turquía, que se ubica en Europa y Asia a l
 
 # Recomendaciones
 La zona de Sultanahmet era un hipódromo en la época dorada de Constantinopla aunque se conservan pocos vestigios en la actualidad, como el Obelisco de Teodosio traído desde Egipto en el año 390. Ahí fue edificada Santa Sofía, la antigua catedral bizantina convertida en mezquita durante el periodo otomano y frente a ella, la famosa Mezquita Azul, construida en el siglo XVII por el Sultán Ahmet I.
+
+# Foto
+![](https://www.capilclinic.es/blog/wp-content/uploads/2016/11/mezquita-azul.jpg)
