@@ -5,3 +5,6 @@ En Bogotá encontrarás como se mezclan diferentes estilos, desde edificios mode
 
 ## Recomendacion
 El principal atractivo y orgullo turístico de Bogotá es el barrio de la Candelaria, el cual está compuesto por 6 distintas zonas. Sus angostas calles y su arquitectura conservan el encanto de la época colonial. Y su oferta histórica, gastronómica y cultural enamoran a todo turista que vista la ciudad.
+
+## Foto
+![](https://arriendo.com/co/blog/wp-content/uploads/2024/01/vivir-en-el-centro-de-bogota-1400x934.jpg)
