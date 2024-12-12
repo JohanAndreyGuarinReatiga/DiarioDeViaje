@@ -8,3 +8,6 @@ Cuatro noches en Barcelona, ​​lo que se traduce en tres días completos en l
 
 ## Foto
 ![](https://hips.hearstapps.com/hmg-prod/images/barcelona-city-skyline-with-sagrada-familia-royalty-free-image-1692960079.jpg)
+
+## Informacion sobre Barcelona
+Barcelona, la capital cosmopolita de la región de Cataluña en España, es conocida por su arte y arquitectura. La fantástica iglesia de la Sagrada Familia y otros hitos modernistas diseñados por Antoni Gaudí adornan la ciudad. El Museo Picasso y la Fundación Joan Miró muestran el arte moderno de los artistas que dan origen a sus nombres. El Museo de Historia de Barcelona (MUHBA) incluye varios sitios arqueológicos romanos.
