@@ -5,3 +5,6 @@ Rodeada por mar y montaña se erige Barcelona como capital catalana. Una ciudad 
 
 ## Recomendacion
 Cuatro noches en Barcelona, ​​lo que se traduce en tres días completos en la ciudad, sería mi sugerencia como el tiempo mínimo que deberías dedicar. Digo que es el mínimo, porque tres días sólo te alcanzarán para ver las atracciones más importantes, pero te perderás muchas otras interesantes que vale la pena visitar.
+
+## Foto
+![](https://hips.hearstapps.com/hmg-prod/images/barcelona-city-skyline-with-sagrada-familia-royalty-free-image-1692960079.jpg)
